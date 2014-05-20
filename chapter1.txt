@@ -31,4 +31,4 @@ The Ashram, Sabarmati.
 26th November, 1925
 
 ---- 
-[Moksha]: Lit. freedom from birth and death. The nearest English equivalent is salvation.
+[^1]: Lit. freedom from birth and death. The nearest English equivalent is salvation.
