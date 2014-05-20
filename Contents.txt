@@ -1,3 +1,12 @@
-> These files will be included in your book:
+>
+These
+files
+will
+be
+included
+in
+your
+book:
 About.txt
 chapter1.txt
+Introduction.txt
