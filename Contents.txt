@@ -1,7 +1,4 @@
-About.txt
-Introduction.txt
-chapter1.txt
-chapter2.md
-chapter1.md
-Introduction.md
 About.md
+Introduction.md
+chapter1.md
+chapter2.md
