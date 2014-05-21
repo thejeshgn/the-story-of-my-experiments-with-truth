@@ -15,9 +15,9 @@ Bangalore, India
 May 21, 2014
 
 
+## References
+- [http://www.columbia.edu/itc/mealac/pritchett/00litlinks/gandhi/index.html](Prof. Emerita Frances W. Pritchett's Copy)
 
 
 
-About this project. Coming soon.
 
-http://www.columbia.edu/itc/mealac/pritchett/00litlinks/gandhi/index.html#part1
