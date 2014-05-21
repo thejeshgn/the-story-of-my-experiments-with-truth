@@ -1,4 +1,4 @@
-## Childhood
+# Childhood
 
 I must have been about seven when my father left Porbandar for Rajkot, to become a member of the Rajasthanik Court. There I was put into a primary school, and I can well recollect those days, including the names and other particulars of the teachers who taught me. As at Porbandar, so here, there is hardly anything to note about my studies. I could have been only a mediocre student. From this school I went to the suburban school and thence to the high school, having already reached my twelfth year. I do not remember having ever told a lie, during this short period, either to my teachers or to my schoolmates. I used to be very shy and avoided all company. My books and my lessons were my sole companions. To be at school at that stroke of the hour and to run back home as soon as school closed--that was my daily habit. I literally ran back, because I could not bear to talk to anybody. I was even afraid lest anyone should poke fun at me.
 
