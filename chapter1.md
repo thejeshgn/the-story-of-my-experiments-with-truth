@@ -1,4 +1,4 @@
-## Birth And Parentage 
+# Birth And Parentage 
 
  The Gandhis belong to the Bania caste and seem to have been originally grocers. But for three generations, from my grandfather, they have been Prime Ministers in several Kathiawad States. Uttamchand Gandhi, alias Ota Gandhi, my grandfather, must have been a man of principle. State intrigues compelled him to leave Porbandar, where he was Diwan, and to seek refuge in Junagadh. There he saluted the Nawab with the left hand. Someone, noticing the apparent discourtesy, asked for an explanation, which was thus given: 'The right hand is already pledged to Porbandar.'
 
