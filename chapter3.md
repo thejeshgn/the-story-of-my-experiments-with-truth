@@ -1,4 +1,4 @@
-## Child Marriage
+# Child Marriage
 
 Much as I wish that I had not to write this chapter, I know that I shall have to swallow many such bitter draughts in the course of this narrative. And I cannot do otherwise, if I claim to be a worshipper of Truth It is my painful duty to have to record here my marriage at the age of thirteen. As I see the youngsters of the same age about me who are under my care, and think of my own marriage, I am inclined to pity myself and to congratulate them on having escaped my lot. I can see no moral argument in support of such a preposterously early marriage.
 
