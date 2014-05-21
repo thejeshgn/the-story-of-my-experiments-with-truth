@@ -1,4 +1,4 @@
-#My Father's Death And my Double Shame
+# My Father's Death And my Double Shame
 
 The time of which I am now speaking is my sixteenth year. My father, as we have seen, was bed-ridden, suffering from a fistula. My mother, an old servant of the house, and I were his principal attendants. I had the duties of a nurse, which mainly consisted in dressing the wound, giving my father his medicine, and compounding drugs whenever they had to be made up at home. Every night I massaged his legs, and retired only when he asked me to so so or after he had fallen asleep. I loved to do this service. I do not remember ever having neglected it. All the time at my disposal, after the performance of the daily duties, was divided between school and attending on my father. I would only go out for an evening walk either when he permitted me or when he was feeling well.
 
