@@ -1,4 +1,4 @@
-# 'NIRBAL KE BALA RAMA' [^1]
+# 'NIRBAL KE BALA RAMA' 
 
 Though I had acquired a nodding acquaintance with Hinduism and other religions of the world, I should have known that it would not be enough to save me in my trials. Of the thing that sustains him through trials man has no inkling, much less knowledge, at the time. If an unbeliever, he will attribute his safety to chance. If a believer, he will say God saved him. He will conclude, as well he may, that his religious study or spiritual discipline was at the back of the state of grace within him. But in the hour of his deliverance he does not know whether his spiritual discipline or something else saves him. Who that has prided himself on his spiritual strength has not seen it humbled to the dust? A knowledge of religion, as distinguished from experience, seems but chaff in such moments of trial.
 
